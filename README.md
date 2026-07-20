@@ -1,1 +1,1 @@
-### Thingking Machine
+### Rationalizing Machine
